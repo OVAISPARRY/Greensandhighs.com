@@ -14,4 +14,6 @@ Welcome to the official digital showcase for **Greens & Highs**, powered by **Tr
 * **24/7 Support:** Dedicated on-ground assistance throughout your journey.
 
 ## 📞 Get In Touch
+Ready to plan your trip? Contact us for a customized quote:
 * **Website:** [travelnervekashmir.com](https://travelnervekashmir.com/)
+* **WhatsApp:** [Click to Chat](https://wa.me/your-number-6005715600)
